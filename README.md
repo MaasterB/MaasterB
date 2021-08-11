@@ -1,0 +1,7 @@
+-Hello there @MaasterB , a chilean youtuber that is also a plague doctor.
+- I’m mostly interested in Minecraft, the other stuff is too much for metion.
+- I’m not currently learning anything, since my kinda lack of time, but I'm always open to new things.
+- How to reach me:
+-Discord: Master B#0049
+-Youtube: https://www.youtube.com/c/MasterByt/
+-Insta: https://www.instagram.com/masterb_ig/
